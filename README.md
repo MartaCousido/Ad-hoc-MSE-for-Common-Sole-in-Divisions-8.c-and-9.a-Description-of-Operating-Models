@@ -1,0 +1,1 @@
+# Ad-hoc-MSE-for-Common-Sole-in-Divisions-8.c-and-9.a-Description-of-Operating-Models
